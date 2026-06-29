@@ -1,5 +1,5 @@
 # R.Ritvik (CREATIVE / STUDENT)
-### Squad Domain: Designer | FIFA Nation: Argentina
+### Squad Domain: Designer | FIFA Nation: Portugal
 
 ### About Me
 
